@@ -1,4 +1,5 @@
 # suggestion-bot
-![image](https://user-images.githubusercontent.com/74924310/189112330-d0e9f800-d710-4c22-9978-be1d739725f9.png)
+https://cdn.discordapp.com/attachments/948192529512280084/1020434019894173706/unknown.png
+https://cdn.discordapp.com/attachments/948192529512280084/1020434068011233362/unknown.png
 
 
